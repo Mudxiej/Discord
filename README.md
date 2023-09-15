@@ -113,3 +113,11 @@ You made a mistake. And you never did it again.  <br />
 Learning from mistakes makes us stronger.  <br />
 We may stumble along the way, but that won't unlearn how to walk.  <br />
 Keep on walking and don't forget who you love.*  <br />
+
+<br />
+
+*Treasure the love you've built, <br />
+like creators value what they made.* <br />
+
+<br />
+
