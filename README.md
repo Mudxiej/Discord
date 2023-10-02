@@ -121,3 +121,9 @@ like creators value what they made.* <br />
 
 <br />
 
+*I value others, <br />
+before my life.* <br />
+
+<br />
+
+*
