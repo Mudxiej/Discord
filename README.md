@@ -126,4 +126,13 @@ before my life.* <br />
 
 <br />
 
+*I don't deal pain to the others <br />
+I'm not like the others <br />
+I bring happiness* <br />
 
+<br />
+
+*I'm happiest when you understand me <br />
+for who I am* <br />
+
+<br />
