@@ -145,3 +145,14 @@ and I don't want to hurt you. <br />
 I would never hurt you* <br />
 
 <br />
+
+*I'm happiest <br />
+when you understand me <br />
+for who I really am* <br />
+
+<br />
+
+*She is the right person <br />
+in the wrong time* <br />
+
+<br />
