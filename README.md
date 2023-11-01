@@ -152,6 +152,10 @@ for who I really am* <br />
 
 <br />
 
+*What catches your eye is just the beginning, <br />
+what captures your heart is the journey.* <br />
+
+ br />
 *She is the right person <br />
 in the wrong time* <br />
 
