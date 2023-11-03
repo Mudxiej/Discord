@@ -161,3 +161,9 @@ in the wrong time* <br />
 what captures your heart is the journey.* <br />
 
 <br />
+
+*Emotionless on the outside <br />
+doesn't makes man invulnerable inside. <br />
+Remember that...* <br />
+
+<br />
