@@ -84,6 +84,10 @@ My trademark on the internet is to add a second smile to the emoji like ":))" or
 > These quotes are usually found in my Discord profile "About me"
 <br/>
 
+*Red streams in my veins. Red streams through my mind.* <br />
+
+<br />
+
 *I've been hurt, broken and left, beyond aid. <br />
 That's why I'll make sure others won't receive the same pain I've gained*  <br />
 
