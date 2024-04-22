@@ -171,3 +171,13 @@ doesn't makes man invulnerable inside. <br />
 Remember that...* <br />
 
 <br />
+
+*As long as there are lies, <br />
+people around you are just ghosts of themselves. <br />
+How can you tell <br />
+if you're talking to the real person <br />
+or just a shadow?<br />
+As long as lies exist, you'll never truly know...* <br />
+
+<br />
+
