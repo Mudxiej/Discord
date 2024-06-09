@@ -5,7 +5,7 @@ If you are reading this you are probably wondering why do I have it connected to
 > I know there might be a better way to show this, but I don't know any, so hook me up if there is :DD
 
 ## About my "_in real life_" side
-I'm Oskar, I'm 19 years old, and I'm Polish :)) :poland:
+I'm Oskar, I'm 20 years old, and I'm Polish :)) :poland:
 
 I'm around 190 cm tall, and I weigh almost (yes, almost) 60 kg. <br />
 I have blond hair and blue/green/greyish eyes (they change, but I don't know how that works).
@@ -40,9 +40,9 @@ I have undiagnosed ADHD. That means, that I have most (for me **every**) possibl
 But ADHD made me obsessed with having clean in my room (items and clothes having in the designated place, not like dust), or by using a better term: a perfectionist. I have to set up my keyboard perpendicularly to my mousepad and usually at the Uni have a tablet exactly in the middle of the desk. That comes to my desktop being clean and grouped up in categories.
 Because I know I have ADHD I usually organise my time as much as possible with what I will be doing.
 
-I'm not much of a drinker 🍾, so I started drinking at 18, and stopped at 18 (I hadn't touched alcohol in my life before 18).
+I'm not much of a drinker 🍾. Even tho I'm Slavic I started drinking at 18, and never before.
 
-I have a cat 🐈. His name is Goldi (from gold hair of course) and he turned 7 in July.
+I have a cat 🐈. His name is Goldi (from gold hair of course) and he turned 9 in July.
 
 I'm a minimalist. I don't need much for life (especially when it comes to vacations) so gifts for me are usually kind of useless. I would have rather more time spent with someone important to me eg. birthdays than a gift.
 When it comes to birthdays - I hate mine with passion. It's just a day when you get a little of attention from another person and it's not because they want it to give it to you, it's just a human habit. And every one of them is just a reminder that, that many people know you, but they just don't care about you.
@@ -55,13 +55,13 @@ But if you wanna know more about *that side of me*, I'm a bit of a romantic with
 
 ## About my "internet side"
 
-So **I'm Mudxiej_**, you don't say it as you see it (mud ks iej), more rather Mudziej, with a **Z** (mu J ej)
+So **I'm Mudxiej_**, you don't say it as you see it (it's pronounced "mo͞ʤeɪ"), But you can call me Mud :))
 
 Before I say anything more - I wanna add that I'm the same person on the internet as in real life. I don't go there with a mask, because it's just useless for me :P.
 
-I'm into video games like Valorant, Minecraft, and LoL for 2 months so I'm still new I shall say.
+I'm into video games like Valorant, Minecraft, recently R6S and Maneater as kind of alone game.
 
-I love red color 🟥 and it's my main color in life. Like everybody has their favourite color - mine is red. You wear red - I will be more focused than anyone else.
+I love red color 🟥 and it's my main color in life. Like everybody has their favourite color - mine is red. You wear red - I will be more focused on you than anyone else.
 
 When it comes to Minecraft - I had my own server by name NetheriteSMP. <br/> 
 I had done some videos [on my youtube channel](https://www.youtube.com/@mudxiej_), but I abandoned it, because I hate editing, and I don't have money to hire an editor for these low-quality videos.
@@ -70,7 +70,7 @@ I'm really into PC stuff like a software engineer, so if you have any problems -
 
 Also, I do some videos on YT (from time to time), stream sometimes on Twitch 🔴, and make some random content on TikTok (not on my main channel, hidden one).
 
-I'm a moderator on the 3D Aim Trainer server (mostly known for), and I was a moderator on [Chezjusz](https://www.youtube.com/c/Chezjusz) server (the 60-year-old guy who is still recording classic Minecraft videos, like back in a day).
+I'm a Administrator on the 3D Aim Trainer server (mostly known for), and I was a moderator on [Chezjusz](https://www.youtube.com/c/Chezjusz) server (the 70-year-old guy who is still recording classic Minecraft videos, like back in a day).
 
 If you would be wondering about my gaming setup, I have it on my [twitch](https://twitch.tv/mudxiej_) in the description. Feel free to check it out.
 
