@@ -181,3 +181,19 @@ As long as lies exist, you'll never truly know...* <br />
 
 <br />
 
+*Our memories are the seeds, <br />
+from which our future grows. <br />
+They shape us, they guide us, <br />
+they are there <br />
+to make us - us.  <br />
+Real, unique, irreplaceable* <br />
+
+<br />
+
+*Be honest to yourself <br />
+and ask yourself: <br />
+if you are honest with yourself <br />
+about everything else. <br />
+If you say you are - then you are lying.* <br />
+
+<br />
