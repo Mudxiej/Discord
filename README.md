@@ -136,11 +136,6 @@ I bring happiness* <br />
 
 <br />
 
-*I'm happiest when you understand me <br />
-for who I am* <br />
-
-<br />
-
 *I'm not running away from problems, <br />
 because I'm afraid of you or your opinion about me. <br />
 I'm running because I have a power to kill people <br />
