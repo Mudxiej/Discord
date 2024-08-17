@@ -72,7 +72,7 @@ Also, I do some videos on YT (from time to time), stream sometimes on Twitch ðŸ”
 
 I'm a Administrator on the 3D Aim Trainer server (mostly known for), and I was a moderator on [Chezjusz](https://www.youtube.com/c/Chezjusz) server (the 70-year-old guy who is still recording classic Minecraft videos, like back in a day).
 
-If you would be wondering about my gaming setup, I have it on my [twitch](https://twitch.tv/mudxiej_) in the description. Feel free to check it out.
+If you would be wondering about my gaming setup, I have it on my [twitch](https://twitch.tv/rgbdatacollector) in the description. Feel free to check it out.
 
 I don't swear that much. I don't rage at video games and I just enjoy games the way we should - with fun, not competitive hate about being bat at the game. That's my point of view in LoL.
 
